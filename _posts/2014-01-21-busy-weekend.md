@@ -14,7 +14,7 @@ Saturday we had scheduled our first of two visits to complete our home study. Th
 
 We also had to have a fire extinguisher on every level of the house. Lets take a poll. Who has a fire extinguisher on every level of the house? ---------------------------------- yeah. I thought so. Nobody does. So it was off to Lowes on Friday to get three of them.
 
-[caption id="attachment_181" align="alignnone" width="300"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/01/Extinguishers.jpg"><img class="size-medium wp-image-181" alt="Home Study Preparations. Fire extinguishers for every level. " src="http://hartgraveshaven.com/wp-content/uploads/2014/01/Extinguishers-300x300.jpg" width="300" height="300" /></a> Home Study Preparations. Fire extinguishers for every level.[/caption]
+[caption id="attachment_181" align="alignnone" width="300"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/Extinguishers.jpg"><img class="size-medium wp-image-181" alt="Home Study Preparations. Fire extinguishers for every level. " src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/Extinguishers-300x300.jpg" width="300" height="300" /></a> Home Study Preparations. Fire extinguishers for every level.[/caption]
 
 After I cleaned most of the night (Tom was working, but he did clean off his desk) I zonked out and woke up early so that I could mop the kitchen floor one more time (the doodle gets it so messy in the winter!). I got ready as Tom went out and cleared the driveway and sidewalks. Another poll: Who is sick of snow? Yep. Me too. Then we waited.... and the  door bell rang.
 
@@ -26,15 +26,15 @@ Even though I baked some muffins for breakfast (wanted the house to smell good a
 
 Sunday we slept in and then ran errands. We had a lot of prep to do for our Adoption Announcement Letters that many of you received in the mail. We've been working on those for a <span style="text-decoration: underline;">long</span> time! We finally got them printed (Hindsight: I probably shouldn't have done a gray paper.... argh) and it was time to stuff the envelopes. This is how Tom helped me fold them:
 
-[caption id="attachment_184" align="alignnone" width="225"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/01/Relaxing-e1390262177559.jpg"><img class="size-medium wp-image-184" alt="Tom &amp; Ruby folding envelopes..." src="http://hartgraveshaven.com/wp-content/uploads/2014/01/Relaxing-e1390262177559-225x300.jpg" width="225" height="300" /></a> Tom &amp; Ruby folding envelopes...[/caption]
+[caption id="attachment_184" align="alignnone" width="225"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/Relaxing-e1390262177559.jpg"><img class="size-medium wp-image-184" alt="Tom &amp; Ruby folding envelopes..." src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/Relaxing-e1390262177559-225x300.jpg" width="225" height="300" /></a> Tom &amp; Ruby folding envelopes...[/caption]
 
-[caption id="attachment_183" align="alignnone" width="225"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/01/AddoptionLetters-e1390262196819.jpg"><img class="size-medium wp-image-183" alt="Adoption Blog | Hartgraveshaven.com" src="http://hartgraveshaven.com/wp-content/uploads/2014/01/AddoptionLetters-e1390262196819-225x300.jpg" width="225" height="300" /></a> The beginning....[/caption]
+[caption id="attachment_183" align="alignnone" width="225"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/AddoptionLetters-e1390262196819.jpg"><img class="size-medium wp-image-183" alt="Adoption Blog | Hartgraveshaven.com" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/AddoptionLetters-e1390262196819-225x300.jpg" width="225" height="300" /></a> The beginning....[/caption]
 
 <span style="line-height: 1.5em;">Tom <em>did</em> sign most of them. His penmanship is a lot better than mine... If your letter looks like a first grader signed it, then you were lucky enough to receive mine. We finally got to this point:</span>
 
 &nbsp;
 
-[caption id="attachment_185" align="alignnone" width="300"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/01/AllDone-e1390262152951.jpg"><img class="size-medium wp-image-185" alt="done!" src="http://hartgraveshaven.com/wp-content/uploads/2014/01/AllDone-e1390262152951-300x300.jpg" width="300" height="300" /></a> done![/caption]
+[caption id="attachment_185" align="alignnone" width="300"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/AllDone-e1390262152951.jpg"><img class="size-medium wp-image-185" alt="done!" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/01/AllDone-e1390262152951-300x300.jpg" width="300" height="300" /></a> done![/caption]
 
 And we went to the post office because we couldn't wait another day to share our news! And then we realized it was Martin Luther King Day on Monday and we would have to wait another day. Boo. But way to go MLK!
 

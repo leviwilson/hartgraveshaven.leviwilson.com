@@ -38,13 +38,13 @@ We've been waiting on "the" list for 10.5 months. We have our referral. We are 
 
 And you wouldn't believe how hilarious God is. That night we were watching wheel of fortune as we often do (we're the worst at actually guessing accurately) and this was the puzzle:
 
-[caption id="attachment_501" align="alignnone" width="717"]<a href="http://hartgraveshaven.com/wp-content/uploads/2015/06/IMG_3339.jpg"><img class=" wp-image-501 " alt="Wow. This Just got real." src="http://hartgraveshaven.com/wp-content/uploads/2015/06/IMG_3339-1024x768.jpg" width="717" height="538" /></a> Yes. It sure did.[/caption]
+[caption id="attachment_501" align="alignnone" width="717"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2015/06/IMG_3339.jpg"><img class=" wp-image-501 " alt="Wow. This Just got real." src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2015/06/IMG_3339-1024x768.jpg" width="717" height="538" /></a> Yes. It sure did.[/caption]
 <h2>Leading up to "the" call.</h2>
 It was really weird because the weekend before we got the call, Tom said "I had a dream about our kids." I could tell from the way he said it that the dream seemed very real. He said he couldn't remember much but he felt like something big was about to happen. I actually had that same feeling. I didn't know what it was. But I just had this feeling. I felt that it had to be soon.
 
 The night before we got the call, I wrote a weekly verse on our mirror. You know, with Crayola window markers. What? Thirty-somethings don't have window crayons from Crayola? What's funny is, I've never wrote a weeklly verse. This is our first weekly verse on a mirror in our house:
 
-[caption id="attachment_502" align="alignnone" width="225"]<a href="http://hartgraveshaven.com/wp-content/uploads/2015/06/IMG_3344.jpg"><img class="size-medium wp-image-502" alt="Phillippeans 4:6-7" src="http://hartgraveshaven.com/wp-content/uploads/2015/06/IMG_3344-e1433338432755-225x300.jpg" width="225" height="300" /></a> Phillippeans 4:6-7[/caption]
+[caption id="attachment_502" align="alignnone" width="225"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2015/06/IMG_3344.jpg"><img class="size-medium wp-image-502" alt="Phillippeans 4:6-7" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2015/06/IMG_3344-e1433338432755-225x300.jpg" width="225" height="300" /></a> Phillippeans 4:6-7[/caption]
 <blockquote><em>Be anxious for nothing, but in everything by prayer and supplication, with thanksgiving, let your requests be made known to God; and the peace of God, which surpasses all understanding, will guard your hearts and minds through Christ Jesus. -Philippians 4:6-7</em></blockquote>
 Also, our master bathroom could use a little decorating. And my handwriting could use a little work. I would have wrote nicer if I knew I was going to have to share the photo.
 <h2>Now What?</h2>

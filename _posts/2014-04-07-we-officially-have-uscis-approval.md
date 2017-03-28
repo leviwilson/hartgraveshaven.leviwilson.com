@@ -26,7 +26,7 @@ We also have to write a report about the country we are adopting from. This is r
 
 Also, while we wait we will be keeping busy. I'm foreseeing lots of trips to Turkey Run, and (inexpensive) house projects and kayaking on Geist and anything else we can do to keep our minds off of the waiting. I think we'll always need to plan something to look forward to so that we don't JUST focus on the wait.
 <h2>What can you do?</h2>
-Simply pray. AND attend our event on <a title="Dinner + Silent Auction" href="http://hartgraveshaven.com/?page_id=256">May 3</a>.
+Simply pray. AND attend our event on <a title="Dinner + Silent Auction" href="http://hartgraveshaven.mkweddingstory.com/?page_id=256">May 3</a>.
 
 We're getting really excited for our dinner + silent auction event. We really can't wait to see you all and to just celebrate our journey with you. We really have no idea what to expect and I'm getting kind of nervous, yet excited all at the same time. There are a TON of awesome items to bid on for the silent auction. And just to reiterate, we'll have the capability to take card payments as well as cash or check and trust me, you'll want to bid on some of them. The community and beyond has really opened up and embraced our family and we are just over-the-moon excited for the day do arrive!
 

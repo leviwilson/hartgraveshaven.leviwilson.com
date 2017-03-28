@@ -18,59 +18,59 @@ The Sunday before the event, my Grandmother passed away. She was so ready to go.
 
 After the funeral, we had a bit more setting up to do for the fundraiser, so a bunch of family came to help set up in the evening so that Saturday we could relax a bit before chaos hit.
 
-[caption id="attachment_350" align="alignnone" width="819"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1556.jpg"><img class=" wp-image-350 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1556-1024x768.jpg" width="819" height="614" /></a> This is where the kids were as we got things together on Friday.... and this is where Tom was too.[/caption]
+[caption id="attachment_350" align="alignnone" width="819"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1556.jpg"><img class=" wp-image-350 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1556-1024x768.jpg" width="819" height="614" /></a> This is where the kids were as we got things together on Friday.... and this is where Tom was too.[/caption]
 
-[caption id="attachment_344" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1550.jpg"><img class=" wp-image-344 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1550-768x1024.jpg" width="614" height="819" /></a> This is how Tom helped setup for the fundraiser.....[/caption]
-
-&nbsp;
-
-<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1555.mov">IMG_1555</a>
-
-[caption id="attachment_351" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1557.jpg"><img class=" wp-image-351 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1557-768x1024.jpg" width="614" height="819" /></a> Sweet de-tonsiled Braylee. LOVE her![/caption]
-
-[caption id="attachment_355" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1561.jpg"><img class=" wp-image-355 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1561-768x1024.jpg" width="614" height="819" /></a> Setting up for the fundraiser[/caption]
+[caption id="attachment_344" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1550.jpg"><img class=" wp-image-344 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1550-768x1024.jpg" width="614" height="819" /></a> This is how Tom helped setup for the fundraiser.....[/caption]
 
 &nbsp;
 
-[caption id="attachment_368" align="alignnone" width="574"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1574.jpg"><img class=" wp-image-368  " alt="Setting up for the fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1574-1024x768.jpg" width="574" height="430" /></a> We're all ready for Saturday![/caption]
+<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1555.mov">IMG_1555</a>
 
-[caption id="attachment_360" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1566.jpg"><img class=" wp-image-360 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1566-768x1024.jpg" width="614" height="819" /></a> All ready for Saturday![/caption]
+[caption id="attachment_351" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1557.jpg"><img class=" wp-image-351 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1557-768x1024.jpg" width="614" height="819" /></a> Sweet de-tonsiled Braylee. LOVE her![/caption]
 
-[caption id="attachment_370" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1576.jpg"><img class=" wp-image-370 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1576-768x1024.jpg" width="614" height="819" /></a> Ruby for some reason was tired after setting up too....[/caption]
+[caption id="attachment_355" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1561.jpg"><img class=" wp-image-355 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1561-768x1024.jpg" width="614" height="819" /></a> Setting up for the fundraiser[/caption]
 
 &nbsp;
 
-[caption id="attachment_373" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1579.jpg"><img class=" wp-image-373 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1579-768x1024.jpg" width="614" height="819" /></a> Karen Johnson - The chef of the evening. You worked SO hard in that kitchen. THANK YOU![/caption]
+[caption id="attachment_368" align="alignnone" width="574"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1574.jpg"><img class=" wp-image-368  " alt="Setting up for the fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1574-1024x768.jpg" width="574" height="430" /></a> We're all ready for Saturday![/caption]
+
+[caption id="attachment_360" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1566.jpg"><img class=" wp-image-360 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1566-768x1024.jpg" width="614" height="819" /></a> All ready for Saturday![/caption]
+
+[caption id="attachment_370" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1576.jpg"><img class=" wp-image-370 " alt="Setting up for the fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1576-768x1024.jpg" width="614" height="819" /></a> Ruby for some reason was tired after setting up too....[/caption]
+
+&nbsp;
+
+[caption id="attachment_373" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1579.jpg"><img class=" wp-image-373 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1579-768x1024.jpg" width="614" height="819" /></a> Karen Johnson - The chef of the evening. You worked SO hard in that kitchen. THANK YOU![/caption]
 
 &nbsp;
 
 <span style="line-height: 1.5em;">We woke up Saturday with equal parts of excitement and nerves. It's so weird that almost exactly a year ago Tom and I were in a very scary place, not knowing what the outcome of our pregnancy would be and trying to be faithful and calm. Now, a year later we are filled with so much hope and excitement for what God has in store for our little family.</span>
 
-[caption id="attachment_372" align="alignnone" width="225"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1578.jpg"><img class="size-medium wp-image-372" alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1578-225x300.jpg" width="225" height="300" /></a> I was having a good hair morning so I took this time to do a selfie. My mom said, "What are you doing?!" I said "A selfie, duh."[/caption]
+[caption id="attachment_372" align="alignnone" width="225"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1578.jpg"><img class="size-medium wp-image-372" alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1578-225x300.jpg" width="225" height="300" /></a> I was having a good hair morning so I took this time to do a selfie. My mom said, "What are you doing?!" I said "A selfie, duh."[/caption]
 
 We went to the church early to finish up doing some last minute things and then it was show time. We were so overwhelmed! You generous people just flooded in those doors to support us and our family. I was on the verge of joyful tears most of the night. My husband however, was near the cotton candy most of the night ;) I saw and spoke to many of you that I had not seen in years. I heard stories of other families and their adoptions. People spoke to us about losing our son and how you have been praying for Tom and me- we were so touched and grateful for all of the support and prayers. I heard "keep the change" quite a bit. We saw old friends from high school that we hadn't seen in forever. I tell you, we were so happy! It was so fun to see months of Jessica's hard work and planning come together, to help us bring our family home. Some of you I saw out of the corner of my eye then wasn't able to see you again before the event was over. So sorry we missed speaking with you! It felt like our wedding day actually. Trying to get around to talk to every single person there and thank them for coming, but failing miserably because there were just so many people and exciting things happening.
 
-[caption id="attachment_376" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1582.jpg"><img class=" wp-image-376 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1582-768x1024.jpg" width="614" height="819" /></a> People just flooded in! (and Uncle Dave did a great photobomb)[/caption]
+[caption id="attachment_376" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1582.jpg"><img class=" wp-image-376 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1582-768x1024.jpg" width="614" height="819" /></a> People just flooded in! (and Uncle Dave did a great photobomb)[/caption]
 
-[caption id="attachment_377" align="alignnone" width="819"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1583.jpg"><img class=" wp-image-377 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1583-1024x768.jpg" width="819" height="614" /></a> Thanks to my sister-in-law and brother for taking tickets...and Levi wore a matching shirt agains his will. Thanks brother![/caption]
+[caption id="attachment_377" align="alignnone" width="819"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1583.jpg"><img class=" wp-image-377 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1583-1024x768.jpg" width="819" height="614" /></a> Thanks to my sister-in-law and brother for taking tickets...and Levi wore a matching shirt agains his will. Thanks brother![/caption]
 
 &nbsp;
 
 We kept getting asked  if we had any thoughts on how much we would raise. I thought at a minimum we would raise (between t-shirts, dinner and silent auction)  around $3,000 and I was thinking $5,000 on the high end (because I knew the auction retail value was over $5,o00).  At the end of the night, we started cleaning up and also started getting a rough tally of the funds. When my brother told us the rough initial count, we couldn't believe it. I just hugged my husband and started crying, and we ran to find Jessica to tell her the news.
 
-[caption id="attachment_378" align="alignnone" width="819"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1584.jpg"><img class=" wp-image-378 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1584-1024x768.jpg" width="819" height="614" /></a> This is Sophee, mad because Libby wasn't there yet.[/caption]
+[caption id="attachment_378" align="alignnone" width="819"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1584.jpg"><img class=" wp-image-378 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1584-1024x768.jpg" width="819" height="614" /></a> This is Sophee, mad because Libby wasn't there yet.[/caption]
 
 &nbsp;
 
-[caption id="attachment_379" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1585.jpg"><img class=" wp-image-379 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1585-768x1024.jpg" width="614" height="819" /></a> ...and this is her when I said to smile. She loves the camera![/caption]
+[caption id="attachment_379" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1585.jpg"><img class=" wp-image-379 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1585-768x1024.jpg" width="614" height="819" /></a> ...and this is her when I said to smile. She loves the camera![/caption]
 
-[caption id="attachment_385" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1591.jpg"><img class=" wp-image-385 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1591-768x1024.jpg" width="614" height="819" /></a> Serving up some delicious food! Thanks Boys![/caption]
+[caption id="attachment_385" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1591.jpg"><img class=" wp-image-385 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1591-768x1024.jpg" width="614" height="819" /></a> Serving up some delicious food! Thanks Boys![/caption]
 
 &nbsp;
 
-[caption id="attachment_386" align="alignnone" width="614"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1592.jpg"><img class=" wp-image-386 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1592-768x1024.jpg" width="614" height="819" /></a> Happy the Hoppe's have arrived![/caption]
+[caption id="attachment_386" align="alignnone" width="614"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1592.jpg"><img class=" wp-image-386 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1592-768x1024.jpg" width="614" height="819" /></a> Happy the Hoppe's have arrived![/caption]
 
-[caption id="attachment_388" align="alignnone" width="819"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1594.jpg"><img class=" wp-image-388 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1594-1024x1024.jpg" width="819" height="819" /></a> My Uncle Dave is LOVING this (probably more than the children)[/caption]
+[caption id="attachment_388" align="alignnone" width="819"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1594.jpg"><img class=" wp-image-388 " alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1594-1024x1024.jpg" width="819" height="819" /></a> My Uncle Dave is LOVING this (probably more than the children)[/caption]
 
 <span style="line-height: 1.5em;">Sorry to keep you in suspense, but hold of just a little longer. Tom and I have already paid a very large portion of our initial adoption fees that have got us to the point of submitting our dossier. Tom and I had discussed that if we could raise in the course of a YEAR $10,000 that would be incredibly helpful, as that would cover  <em>most</em> of the remaining costs of our adoption fees at the time of our referral (however, if we are referred a sibling group, that cost will go up slightly). In addition to the agency fees remaining, we will still have to pay for our travel expenses. </span>
 
@@ -88,7 +88,7 @@ Not everyone is called to adopt a child; however we can all help in some way. Wh
 
 Thank you for helping us.
 
-[caption id="attachment_391" align="alignnone" width="781"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1597.jpg"><img class="size-full wp-image-391" alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.com/wp-content/uploads/2014/05/IMG_1597.jpg" width="781" height="559" /></a> The calm before the storm. There are more who helped, but this was all we gathered for the photo ahead of time...[/caption]
+[caption id="attachment_391" align="alignnone" width="781"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1597.jpg"><img class="size-full wp-image-391" alt="Hartgraves Adoption Fundraiser" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/05/IMG_1597.jpg" width="781" height="559" /></a> The calm before the storm. There are more who helped, but this was all we gathered for the photo ahead of time...[/caption]
 
 I hate this post because it really does not do justice. I jumped on our website this week and I saw that our stats have been elevated and I felt bad because I figured people were popping in for an update to see how the fundraiser went but I was having a ton of trouble putting it into words. This doesn't do it justice. Thank you. Thank you. Thank you. We love you and each of you who have prayed for us, bought a t-shirt, ate chicken&amp;noodles, sent an encouraging word or donation or the countless things you all have done - Thank you. THANK YOU. God bless you all.
 

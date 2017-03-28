@@ -8,15 +8,15 @@ categories: [Adoption, Infertility &amp; Loss, Waiting]
 ---
 It's been awhile since I've written in here. Not a whole lot to report. Paperwork is done and now we wait. Then wait some more.
 
-However, we did get a fun little something. We designed &amp; sold some <a title="T-shirts" href="http://hartgraveshaven.com/?page_id=242">T-shirts</a> as a fundraiser and my favorite European wanted one as well. For those of you unfortunate people who do not know the dimpled Beata from Poland- I will tell you that she is <span style="text-decoration: underline;">never</span> in Poland. She's always traveling somewhere and in another country. She currently is living in Cambodia for a year-ish maybe more. As you can imagine, mail is a little more sparse in Cambodia than in the good 'ol USofA, so Beata had me send her shirt to her friend in Germany to pick up later, and also ordered one for her friend there. So, somewhere in Germany some lovely people are wearing these t-shirts:
+However, we did get a fun little something. We designed &amp; sold some <a title="T-shirts" href="http://hartgraveshaven.mkweddingstory.com/?page_id=242">T-shirts</a> as a fundraiser and my favorite European wanted one as well. For those of you unfortunate people who do not know the dimpled Beata from Poland- I will tell you that she is <span style="text-decoration: underline;">never</span> in Poland. She's always traveling somewhere and in another country. She currently is living in Cambodia for a year-ish maybe more. As you can imagine, mail is a little more sparse in Cambodia than in the good 'ol USofA, so Beata had me send her shirt to her friend in Germany to pick up later, and also ordered one for her friend there. So, somewhere in Germany some lovely people are wearing these t-shirts:
 
-<a href="http://hartgraveshaven.com/wp-content/uploads/2014/07/AdoptionTShirt.png"><img class="alignnone size-medium wp-image-433" alt="Adoption T-Shirts" src="http://hartgraveshaven.com/wp-content/uploads/2014/07/AdoptionTShirt-300x204.png" width="300" height="204" /></a>
+<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/AdoptionTShirt.png"><img class="alignnone size-medium wp-image-433" alt="Adoption T-Shirts" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/AdoptionTShirt-300x204.png" width="300" height="204" /></a>
 
 The other day in the mail we received this pretty little note from our friends in Germany! So great that they are sporting our shirts and supporting our adoption. Warms my heart!
 
-<a href="http://hartgraveshaven.com/wp-content/uploads/2014/07/photo-11.jpg"><img class="alignnone size-large wp-image-436" alt="photo 1" src="http://hartgraveshaven.com/wp-content/uploads/2014/07/photo-11-768x1024.jpg" width="768" height="1024" /></a>
+<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/photo-11.jpg"><img class="alignnone size-large wp-image-436" alt="photo 1" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/photo-11-768x1024.jpg" width="768" height="1024" /></a>
 
-<a href="http://hartgraveshaven.com/wp-content/uploads/2014/07/photo-2.jpg"><img class="alignnone size-large wp-image-435" alt="photo 2" src="http://hartgraveshaven.com/wp-content/uploads/2014/07/photo-2-768x1024.jpg" width="768" height="1024" /></a>
+<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/photo-2.jpg"><img class="alignnone size-large wp-image-435" alt="photo 2" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/photo-2-768x1024.jpg" width="768" height="1024" /></a>
 
 Also, it's been on my heart to mention this, and I've tried writing multiple posts about it but I couldn't ever hit publish. I'll try to keep it short and sweet...
 
@@ -34,7 +34,7 @@ God has a purpose for your life. Move forward. He is with you. Live that life. L
 
 And when it gets hard again (because it will), head over to the B-I-B-L-E and turn to Jeremiah 29:11.
 
-<a href="http://hartgraveshaven.com/wp-content/uploads/2014/07/Jeremiah.jpg"><img class="alignnone size-medium wp-image-437" alt="Jeremiah" src="http://hartgraveshaven.com/wp-content/uploads/2014/07/Jeremiah-300x243.jpg" width="300" height="243" /></a>
+<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/Jeremiah.jpg"><img class="alignnone size-medium wp-image-437" alt="Jeremiah" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/07/Jeremiah-300x243.jpg" width="300" height="243" /></a>
 
 Thanks for reading and catching up! Please continue to pray for our adoption process— more specifically for peace as we wait and that the wait will be a quick one!
 

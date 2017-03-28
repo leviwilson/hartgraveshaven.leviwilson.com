@@ -6,9 +6,9 @@ author: ashlie
 comments: true
 categories: []
 ---
-<a href="http://hartgraveshaven.com/wp-content/uploads/2014/03/1948048_10153920528915468_586655607_n.jpg"><img class="size-full wp-image-288 aligncenter" alt="Adoption Fundraiser | Hartgraveshaven.com" src="http://hartgraveshaven.com/wp-content/uploads/2014/03/1948048_10153920528915468_586655607_n.jpg" width="851" height="315" /></a>
+<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/1948048_10153920528915468_586655607_n.jpg"><img class="size-full wp-image-288 aligncenter" alt="Adoption Fundraiser | Hartgraveshaven.com" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/1948048_10153920528915468_586655607_n.jpg" width="851" height="315" /></a>
 <h1>Please join us for a dinner and silent auction</h1>
-as we raise funds to assist us in our international adoption journey. You can read more about us and our story <a title="Our Story" href="http://hartgraveshaven.com/?page_id=57">here</a>. If you have questions regarding adoption, you can start <a title="FAQ’s" href="http://hartgraveshaven.com/?page_id=63">here</a>a and if you have any further questions please <a title="Contact us" href="http://hartgraveshaven.com/?page_id=165">contact us</a>.
+as we raise funds to assist us in our international adoption journey. You can read more about us and our story <a title="Our Story" href="http://hartgraveshaven.mkweddingstory.com/?page_id=57">here</a>. If you have questions regarding adoption, you can start <a title="FAQ’s" href="http://hartgraveshaven.mkweddingstory.com/?page_id=63">here</a>a and if you have any further questions please <a title="Contact us" href="http://hartgraveshaven.mkweddingstory.com/?page_id=165">contact us</a>.
 <h2>THE DETAILS</h2>
 <ul>
 	<li>Saturday, May 3rd</li>
@@ -30,7 +30,7 @@ Sherri Wilson
 Andrea Hoppe
 
 <span style="text-decoration: underline;"><strong>Indy Area</strong></span>
-<a title="Contact us" href="http://hartgraveshaven.com/?page_id=165">Thomas &amp; Ashlie Hartgraves </a>
+<a title="Contact us" href="http://hartgraveshaven.mkweddingstory.com/?page_id=165">Thomas &amp; Ashlie Hartgraves </a>
 <h2>Ticket Prices:</h2>
 <strong>Adult</strong> $7 advance/$8 at the door
 <strong>Children</strong> (4-12) $4 advance/$5 at the door

@@ -16,26 +16,26 @@ Part of the dossier paperwork required us to submit a couple dozen photos of our
 
 This photo is mid-assembly when I was putting the photos and printed labels into the protectors. They said that sometimes people just submit an envelope and write on the back, but if you've ever received anything hand-written from me, you would know that I write like a child. They'd be like "Awe... they had their niece write on the back..." Kind of like that Friends episode where Joey wrote the reference letter and sent it directly to the agency and the agency loved it because they thought a child did it? That was a good one!
 
-[caption id="attachment_282" align="alignnone" width="768"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/03/photo-2.jpg"><img class="size-large wp-image-282" alt="Dossier Paperwork | HartgravesHaven.com" src="http://hartgraveshaven.com/wp-content/uploads/2014/03/photo-2-768x1024.jpg" width="768" height="1024" /></a> Dossier Paperwork | HartgravesHaven.com[/caption]
+[caption id="attachment_282" align="alignnone" width="768"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/photo-2.jpg"><img class="size-large wp-image-282" alt="Dossier Paperwork | HartgravesHaven.com" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/photo-2-768x1024.jpg" width="768" height="1024" /></a> Dossier Paperwork | HartgravesHaven.com[/caption]
 
 We had to include exterior photos of our home, the yard, and of each room in the house. As well as extended family (I mentioned that earlier <em>p.s. Thanks Amanda Harris for getting a recent shot of my sisters family!)</em>. I also ran around to our subdivision's park and shot the playground and the basketball/tennis courts.
 
 The interior of the house was difficult. It took me hours because I would clean, and then we have clutter kind of sitting there. It's well-placed clutter, but I didn't want it in the shot. So I basically moved clutter from one room to the other all day long taking photos. I also may or may not have removed an ugly USA-inspired border from one of the guest rooms in Photoshop. I mean, it's going to be coming down anyways.... I just didn't want Europe to think we were USA-crazed lunatics.... The previous owners put it up for whatever reason and we just haven't gotten to that room yet. It was some pretty handy photoshop work if I do say so myself. I was quite proud because I'm not that good with photoshop.
 
-[caption id="attachment_281" align="alignnone" width="768"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/03/photo-1.jpg"><img class="size-large wp-image-281" alt="Dossier Paperwork | Adoption | Hartgraveshaven.com" src="http://hartgraveshaven.com/wp-content/uploads/2014/03/photo-1-768x1024.jpg" width="768" height="1024" /></a> The great clutter shift.[/caption]
+[caption id="attachment_281" align="alignnone" width="768"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/photo-1.jpg"><img class="size-large wp-image-281" alt="Dossier Paperwork | Adoption | Hartgraveshaven.com" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/photo-1-768x1024.jpg" width="768" height="1024" /></a> The great clutter shift.[/caption]
 
 Yes. Even Ruby's toys were shifted from room to room.
 
 Speaking of Ruby... She's our family too. So I tried to get a good shot of her. She fits well in this family because we're not photogenic either. This is her best work:
 
-[caption id="attachment_283" align="alignnone" width="1024"]<a href="http://hartgraveshaven.com/wp-content/uploads/2014/03/photo-3.jpg"><img class="size-large wp-image-283" alt="The not-so-photogenic Goldendoodle. " src="http://hartgraveshaven.com/wp-content/uploads/2014/03/photo-3-1024x1024.jpg" width="1024" height="1024" /></a> The not-so-photogenic Goldendoodle.[/caption]
+[caption id="attachment_283" align="alignnone" width="1024"]<a href="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/photo-3.jpg"><img class="size-large wp-image-283" alt="The not-so-photogenic Goldendoodle. " src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/photo-3-1024x1024.jpg" width="1024" height="1024" /></a> The not-so-photogenic Goldendoodle.[/caption]
 
 Needless to say, I used old photos I had on my phone of Ruby because these weren't really going to work....
 
 That's about it. I imagine most posts will be boring because there isn't much news. Please be praying that our USCIS moves along and we get approved without any hiccups.
 
-ALSO. If you haven't pre-ordered a <a title="T-shirts" href="http://hartgraveshaven.com/?page_id=242">T-shirt</a> yet and you want one, please be sure to do so. I'm cutting the pre-orders off at the end of the month so we can get shirts in time for our <a title="Dinner + Silent Auction" href="http://hartgraveshaven.com/?page_id=256">May 3 </a>event. We will be ordering a few extra, but I can't really guarantee you one unless you pre-order.
+ALSO. If you haven't pre-ordered a <a title="T-shirts" href="http://hartgraveshaven.mkweddingstory.com/?page_id=242">T-shirt</a> yet and you want one, please be sure to do so. I'm cutting the pre-orders off at the end of the month so we can get shirts in time for our <a title="Dinner + Silent Auction" href="http://hartgraveshaven.mkweddingstory.com/?page_id=256">May 3 </a>event. We will be ordering a few extra, but I can't really guarantee you one unless you pre-order.
 
 Thanks! XO
 
-[caption id="attachment_267" align="alignnone" width="404"]<a title="T-shirts" href="http://hartgraveshaven.com/?page_id=242"><img class="size-full wp-image-267" alt="Adoption T-shirt Fundraiser | HartgravesHaven.comq" src="http://hartgraveshaven.com/wp-content/uploads/2014/03/T-Shirt-FB.jpg" width="404" height="404" /></a> Adoption T-shirt Fundraiser | HartgravesHaven.comq[/caption]
+[caption id="attachment_267" align="alignnone" width="404"]<a title="T-shirts" href="http://hartgraveshaven.mkweddingstory.com/?page_id=242"><img class="size-full wp-image-267" alt="Adoption T-shirt Fundraiser | HartgravesHaven.comq" src="http://hartgraveshaven.mkweddingstory.com/wp-content/uploads/2014/03/T-Shirt-FB.jpg" width="404" height="404" /></a> Adoption T-shirt Fundraiser | HartgravesHaven.comq[/caption]
